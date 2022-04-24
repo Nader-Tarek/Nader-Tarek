@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nader.tarek.cs@gmail.com**
 
-- 📄 Know about my experiences [Resume Link](bit.ly/3LdSMDX)
+- 📄 Know about my experiences [Resume Link](https://bit.ly/3LdSMDX)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
